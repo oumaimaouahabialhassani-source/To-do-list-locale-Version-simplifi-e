@@ -1,0 +1,1 @@
+# To-do-list-locale-Version-simplifi-e
